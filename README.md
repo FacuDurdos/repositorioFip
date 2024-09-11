@@ -1,5 +1,5 @@
 Integrantes del grupo:
 Facundo Durdos
-Marine Vegas
+Marine Vega
 Ivi Burgos
 Agustin Sau
